@@ -9,9 +9,10 @@
 - 1/4 taza de agua.
 - 1 tapita de extracto de vainilla.
 - 1 cucharada de té de bicarbonato de sodio.
+- Chocolate amargo en pedazitos
 
 ## Preparación
 - Procesar todos los ingredientes menos las nueces hasta que se forme una pasta.
-- Agregar las nueces picadas y mezclar.
+- Agregar las nueces picadas, el chocolate y mezclar.
 - Colocar en un molde previamente pincelado con aceite de coco neutro.
 - Cocinar en horno medio por 20 minutos Aprox (me gusta que quede un poco crudo en el medio, podes dejarlo más tiempo si los queres secos).
