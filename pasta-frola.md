@@ -15,7 +15,7 @@
 - Agregar 1 tapita de esencia de vainilla
 - Batir 1 huevo + 1 yema e integrar sin batir
 - Sumar la ralladura de limón
-- Cuando está homogenera agregas la harina de a poco (mitad y mitad)
+- Cuando está homogenea agregas la harina de a poco (mitad y mitad)
 - Sacar del bowl y amasar un poco en la mesa
 - Meter en una bolsa en la heladera 15/20 min
 - Precalentar horno a 200
