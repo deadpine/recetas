@@ -6,7 +6,7 @@
 - 1¾ tazas de harina
 - 1½ cucharaditas de polvo de hornear
 - 1 cucharadita de bicarbonato de sodio
-- ½ cucharadita de canela
+- ½ cucharadita de canela (o más si te animás)
 
 #### Húmedos
 - 2 tazas de zanahorias finamente ralladas
