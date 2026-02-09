@@ -44,7 +44,7 @@
 - Cocinar durante 20'
 - Apagar el fuego y dejar que repose durante 15' - No sacar la tapa!
 - En una sarten calentar el vinagre con el azucar hasta que se disuelva
-- Pasar el arroz a un recipiente de plástico
+- Pasar el arroz a un recipiente de plástico o vidrio
 - Sumar el vinagre y mezclar suave, sin revolver
 - Dejar reposar con un repasador encima
 
