@@ -37,7 +37,7 @@
 #### Preparación
 
 - Lavar el arroz con agua fría hasta que el agua quede transparente - aprox 7 veces
-- Dejar reposar el arroz en un colador por 15 minutos
+- Dejar reposar el arroz en un colador por 15'
 - Poner el arroz en una olla, sumar el agua fría
 - Tapar la olla y poner a fuego máximo 
 - Cuendo hierve, bajar a fuego mínimo
