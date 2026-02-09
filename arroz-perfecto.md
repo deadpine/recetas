@@ -29,8 +29,8 @@
 
 - Arroz para Sushi 500g
 - Agua 600ml
-- Vinagre de arroz 100ml
-- Azúcar 60g
+- Vinagre de arroz 50ml
+- Azúcar 20g
 - Sal
 
 
@@ -44,4 +44,7 @@
 - Cocinar durante 20'
 - Apagar el fuego y dejar que repose durante 15' - No sacar la tapa!
 - En una sarten calentar el vinagre con el azucar hasta que se disuelva
-- Pasar el arroz a un recipiente de plástico y mezclar con el vinagre
+- Pasar el arroz a un recipiente de plástico
+- Sumar el vinagre y mezclar suave, sin revolver
+- Dejar reposar con un repasador encima
+
