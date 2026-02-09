@@ -31,8 +31,6 @@
 - Agua 600ml
 - Vinagre de arroz 50ml
 - Azúcar 20g
-- Sal
-
 
 #### Preparación
 
