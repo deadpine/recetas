@@ -6,10 +6,12 @@ Para 8-10 personas
 
 **Masa**
 - 150gr Harina de Arroz
-- 150gr Fécula de Maiz
+- 150gr Maizena
 - 270gr Azucar
 - 300gr Manteca (cortada en cubos)
 - 300gr Almendras (trozadas chiquitas)
+
+Puede usarse 300gr de harina 0000 en vez de harina de arroz y maizena
 
 **Relleno**
 - 500gr Frutos rojos congelados
