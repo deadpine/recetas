@@ -22,7 +22,7 @@ Para 8-10 personas
 - Precalentar el horno a 160 grados
 - En un bowl unir las almendras y la manteca con la mano
 - Sumar el azucar y las harinas. No amasar demasiado, tiene que quedar un poco granulado
-- Dividir la masa en 3 moldes de 26cm - tiene que quedar finita
+- Dividir la masa en 3 moldes de 26cm (tiene que quedar finita)
 - Hornear por ~13' hasta que quede dorado
 - Dejar enfriar y desmoldar
 - Hacer la crema chantilly: batir la crema, cuando este montada sumar el azucar impalpable y batir hasta que tome consistencia
