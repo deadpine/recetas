@@ -1,22 +1,22 @@
-# Sablée de almendras y frutos rojos
+# Sablée de almendras y frutos rojos 🫐
 
 Para 8-10 personas
 
 ## Ingredientes
 
 **Masa**
-- [ ] 150gr Harina de Arroz
-- [ ] 150gr Fécula de Maiz
-- [ ] 270gr Azucar
-- [ ] 300gr Manteca (cortada en cubos)
-- [ ] 300gr Almendras (trozadas chiquitas)
+- 150gr Harina de Arroz
+- 150gr Fécula de Maiz
+- 270gr Azucar
+- 300gr Manteca (cortada en cubos)
+- 300gr Almendras (trozadas chiquitas)
 
 **Relleno**
-- [ ] 500gr Frutos rojos congelados
-- [ ] 500gr de Dulce de leche
-- [ ] 500ml de Crema
-- [ ] 80gr de Azúcar impalpable
-- [ ] Esencia de vainilla
+- 500gr Frutos rojos congelados
+- 500gr de Dulce de leche
+- 500ml de Crema
+- 80gr de Azúcar impalpable
+- Esencia de vainilla
 
 ## Preparación
 - Precalentar el horno a 160 grados
