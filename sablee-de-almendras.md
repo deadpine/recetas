@@ -27,6 +27,6 @@ Puede usarse 300gr de harina 0000 en vez de harina de arroz y maizena
 - Dividir la masa en 3 moldes de 26cm (tiene que quedar finita)
 - Hornear por ~13' hasta que quede dorado
 - Dejar enfriar y desmoldar
-- Hacer la crema chantilly: batir la crema, cuando este montada sumar el azucar impalpable y batir hasta que tome consistencia. sumar un poquito de esencia de vainilla
-- En dos masas poner dulce de leche + crema + frutos rojos
+- Hacer la crema chantilly: batir la crema, cuando este montada sumar el azucar impalpable y batir hasta que tome consistencia. Sumar un poquito de esencia de vainilla mezclando con cucharon
+- En dos masas poner (en orden) dulce de leche + crema + frutos rojos
 - Apilarlas y sumar la 3er capa arriba
