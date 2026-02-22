@@ -1,4 +1,4 @@
-# Sablée de almendras y frutos rojos 🫐
+# Sablée de almendras y frutos rojos 🍓🫐
 
 Para 8-10 personas
 
