@@ -17,7 +17,7 @@ Puede usarse 300gr de harina 0000 en vez de harina de arroz y maizena
 - 500gr Frutos rojos congelados
 - 500gr de Dulce de leche
 - 500ml de Crema
-- 80gr de Azúcar impalpable
+- 40gr de Azúcar impalpable
 - Esencia de vainilla
 
 ## Preparación
