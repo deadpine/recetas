@@ -9,7 +9,7 @@ Para 8-10 personas
 - 150gr Maizena
 - 270gr Azucar
 - 300gr Manteca (cortada en cubos)
-- 300gr Almendras (trozadas chiquitas)
+- 300gr Almendras tostadas (trozadas muy muy chiquitas)
 
 Puede usarse 300gr de harina 0000 en vez de harina de arroz y maizena
 
