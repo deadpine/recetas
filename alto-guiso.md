@@ -1,6 +1,6 @@
 # Alto guiso 🍲
 
-Para 4 personas
+Para 4 personas - 1.5hs
 
 ## Ingredientes
 
