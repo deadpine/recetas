@@ -42,6 +42,6 @@ Para 4 personas
 - Bajar a **fuego medio**
 - Cada tanto abrir la olla y revolver.
 - Cubrir de agua ahsta el borde si hace falta
-- Esperar a que se cocinen las lentejas y queda listo
+- Esperar a que se cocinen las lentejas y listo
 
 Ideal: dejar reposar de un día para el otro
