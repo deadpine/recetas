@@ -1,5 +1,6 @@
-Pollo desmechado
+# Pollo desmechado 🍗
 
+## Ingredientes
 - 4 pechugas de pollo
 - 1 cebolla chica
 - 3 ajos
@@ -8,6 +9,7 @@ Pollo desmechado
 - caldito / especias
 - sal
 
+## Preparación
 - Poner todo en una olla
 - Sumar agua hasta que tape todo
 - Cocinar a fuego medio por ~1 hora
