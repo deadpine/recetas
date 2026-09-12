@@ -1,5 +1,6 @@
 # Torta Vasca
 
+## Ingredientes
 - 825 g queso crema
 - 255 g azúcar
 - 370 g crema de leche
@@ -9,6 +10,7 @@
 - 5 g extracto de vainilla
 - 5 g sal
 
+## Preparación
 - Precalentar horno a 220
 - Procesar todos los ingredientes menos el queso crema. 
 - Agregar el queso crema y mixear hasta que quede bien liso.
