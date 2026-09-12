@@ -1,5 +1,7 @@
 # Torta Vasca
 
+Molde: 20cm de diámetro, 7cm de altura (mínimo).
+
 ## Ingredientes
 - 825 g queso crema
 - 255 g azúcar
